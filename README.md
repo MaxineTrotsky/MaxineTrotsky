@@ -1,0 +1,3 @@
+Idfk know what to put here...
+i do basic pyton and intermidiate C#
+im interwested in games development and shit
